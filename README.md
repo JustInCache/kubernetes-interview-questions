@@ -1,4 +1,4 @@
-# Kubernetes Interview Questions [Updated July 2025]
+# Kubernetes Interview Questions [Updated July 2025] 🔥🔥🔥
 
 
 #### Updates 🔥
